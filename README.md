@@ -1,4 +1,4 @@
-# Mostly using those
+# Mostly using these
 
 
 # [magn3ta yugen edit](https://cdn.discordapp.com/attachments/850386776974426226/1099706893427027969/-_YUGEN_-.osk)
