@@ -21,3 +21,6 @@
 
 # [Woey](https://cdn.discordapp.com/attachments/850387066855620648/1100745548581056602/ZachTVmlaw_but_better_FOR_MLAW.osk)
 ![](https://cdn.discordapp.com/attachments/850387066855620648/1100745849602068534/screenshot032.png)
+
+# [o_qfat](https://cdn.discordapp.com/attachments/850387066855620648/1100747101526306936/new_skinzorr.osk)
+![](https://cdn.discordapp.com/attachments/850387066855620648/1100747467697434695/screenshot033.png)
