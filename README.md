@@ -3,6 +3,9 @@
 # [Moyai Balls](https://cdn.discordapp.com/attachments/850387066855620648/1111327724628361327/Moyai_Balls.osk)
 ![](https://cdn.discordapp.com/attachments/850387066855620648/1111327804877975694/screenshot064.png)
 
+# [DT subahibi](https://cdn.discordapp.com/attachments/850387066855620648/1111328710595989515/Prawilosc_vJP_without_followpoints.osk)
+![](https://cdn.discordapp.com/attachments/850387066855620648/1111328569122103326/screenshot065.png)
+
 # [o_qfat](https://cdn.discordapp.com/attachments/850387066855620648/1100747101526306936/new_skinzorr.osk)
 ![](https://cdn.discordapp.com/attachments/850387066855620648/1100747467697434695/screenshot033.png)
 
