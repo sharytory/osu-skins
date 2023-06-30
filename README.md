@@ -15,6 +15,8 @@
 # [malisz](https://cdn.discordapp.com/attachments/850387066855620648/1124279721748860978/azerino2023.osk)
 ![](https://cdn.discordapp.com/attachments/850387066855620648/1124279952829861908/screenshot081.png)
 
+#
+
 # Not using these anymore but they can stay I guess
 
 # [DT subahibi](https://cdn.discordapp.com/attachments/850387066855620648/1111328710595989515/Prawilosc_vJP_without_followpoints.osk)
